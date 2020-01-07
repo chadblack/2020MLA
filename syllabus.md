@@ -12,14 +12,15 @@ Spring 2020
 **Email:** cblack6@utk.edu  
 **Phone:** 974-9871  
 **Office:** 2627 Dunford Hall, 6th Floor  
-**Office Hours:** Tuesday, 2:30-4:30, or by appointment  
+**Office Hours:** Wednesday, 2:30-4:30, or by appointment  
 
 
 **TAS:** 
 
-**Email:**  
-**Office:**  
-**Office Hours:** 
+**Mr. Kyle Vratarich**
+**Email:** kvratari@vols.utk.edu  
+**Office:** 2524 Dunford Hall (5th Floor) 
+**Office Hours:** Thursdays, 12:30-1:30, o by appointment  
 
 
 # About
