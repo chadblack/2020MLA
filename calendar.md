@@ -21,7 +21,11 @@ Lectures"](https://www.cc-seas.columbia.edu/node/31875), Columbia University.
 
 **Readings:**
 
-* Chasteen, Chapter 3
+* Eduardo Galeano, "Introduction: 120 Million People in the Eye of
+  a Hurricane," *Open Veins of Latin America* (Monthly Review, 1997 [1973]).
+
+* Greg Grandin, ["Preface," *The Last Colonial
+  Massacre*](https://www.press.uchicago.edu/Misc/Chicago/305724.html).
 
 
 ### Thursday, January 16, 2019: In the Name of the King/In the Name of Law

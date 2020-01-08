@@ -22,6 +22,11 @@ Spring 2020
 **Office:** 2524 Dunford Hall (5th Floor) 
 **Office Hours:** Thursdays, 12:30-1:30, o by appointment  
 
+**Ms. Lorraine Herbon**
+**Email**: lherbon@vols.utk.edu
+**Office**: 2528 Dunford Hall (5th Floor)
+**Office Hours**: Wednesday, 1:00-2:00
+
 
 # About
 
