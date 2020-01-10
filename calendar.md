@@ -24,6 +24,10 @@ Lectures"](https://www.cc-seas.columbia.edu/node/31875), Columbia University.
 * Eduardo Galeano, "Introduction: 120 Million People in the Eye of
   a Hurricane," *Open Veins of Latin America* (Monthly Review, 1997 [1973]).
 
+* Larry Rohter, "[Author Changes His Mind on ’70s
+  Manifesto](https://www.nytimes.com/2014/05/24/books/eduardo-galeano-disavows-his-book-the-open-veins.html)," *New York
+  Times* 24 May 2014.
+
 * Greg Grandin, ["Preface," *The Last Colonial
   Massacre*](https://www.press.uchicago.edu/Misc/Chicago/305724.html).
 
