@@ -235,6 +235,8 @@ University Press).
 **Readings:**
 
 * Chasteen, Chapter 9.
+* Through Line Podcast, ["There Will Be
+  Bananas"](https://www.npr.org/2020/01/07/794302086/there-will-be-bananas)
 
 ### Thursday, April 9, 2019
 
