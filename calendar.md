@@ -281,4 +281,4 @@ University Press).
 
 * None!
 
-## FINAL EXAM -- Friday, May 3 from 10:15a - 12:15p
+## FINAL EXAM -- Friday, May 1 from 10:15a - 12:15p
